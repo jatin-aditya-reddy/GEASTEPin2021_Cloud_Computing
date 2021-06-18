@@ -1,1 +1,1 @@
-The folders are marked as per the deadline dates of each of the tasks assigned
+The folders are marked as per the dates of completion of each of the tasks assigned
